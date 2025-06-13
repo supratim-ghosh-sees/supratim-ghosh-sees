@@ -3,4 +3,4 @@
 
 🎯 I’m interested in AI, freelancing, and helping people choose careers  
 🚀 Currently learning Web Development and AI/ML  
-📫 How to reach me: supratimghoshwork2@gmail.comb
+📫 How to reach me: supratimghoshwork2@gmail.com
